@@ -1,2 +1,5 @@
 # LEARNING
 practical app learning
+LEARNING IS COOL:
+IM A GOOD LEARNER:
+IM COOL:
